@@ -1,6 +1,6 @@
 ### ola eu me chamo **_leticia_**
 ### meu insta é _dxx_leh_
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 🐈‍⬛
 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
